@@ -4,3 +4,4 @@
 **Where from:** Williamsport, PA
 **A favorite food:** Avocado
 **A hobby:** Mountain biking
+**Favorite color:** All of them
